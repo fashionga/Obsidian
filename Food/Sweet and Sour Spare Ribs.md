@@ -1,0 +1,5 @@
+1. Chop ribs into small pieces, add 2 tbsp cooking wine, 1 tbsp soy sauce, 1 tbsp vinegar, mix well, marinate for 20 minutes.
+2. Start the oil pan, when the oil is eight minutes hot, put the marinated spareribs in it, fry until the spareribs turn brown, put them out, and leave the oil in the pan.
+3.  Heat the oil pan a little, add a small half bowl of water and 1 tbsp of vinegar, boil it, then add white sugar and brown sugar, cook it over low heat until it becomes sticky, and stir with chopsticks to prevent the sugar from sticking to the pan.
+4. Change to medium heat, pour in the ribs, let the ribs evenly stained with sweet and sour juice. Stir constantly at the same time. Then pour 1 tablespoons of soy sauce and
+5. grams of salt, stir fry, finally transfer chicken essence, sprinkle sesame seeds, then cook.

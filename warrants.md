@@ -1,0 +1,3 @@
+- ==令状 warrant for==
+- 许可(证)
+- *no warrant for (doing) something* 不是(做)某事的不正当理由
